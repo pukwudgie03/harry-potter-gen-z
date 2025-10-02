@@ -1,6 +1,8 @@
 Chapter 1: Dudley Demented
 
-It was the hottest day of the summer, and Privet Drive was as boring as ever. The air was thick and still, the sun blazing down without a single cloud in the sky. Harry Potter was lying in the flower bed outside number four, trying to eavesdrop on the news through the open window.
+It was the hottest day of the summer, and Privet Drive was as boring as ever. The air was thick and still, the sun blazing down without a single cloud in the sky. Harry Potter was lying in the flower bed outside number four, facing the sky and trying to eavesdrop on the news through the open window.
+
+He looked like a half-starved kid trying not to be seen — skinny, black hair sticking out in every direction, drowning in clothes clearly made for someone twice his size. If it were up to his neighbours, they would have sent him straight to jail for the crime of looking like a dirtbag. Fortunately, he hid well enough not to be seen.
 
 Inside the house, Uncle Vernon was bellowing at the TV, as if his yelling could make it louder. Aunt Petunia was bustling around, pretending not to hear her husband's rants. Dudley, meanwhile, was lounging on the couch, glued to a reality show and munching on a packet of crisps.
 
